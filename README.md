@@ -3,6 +3,9 @@
 ## Enlace a figma:
 https://www.figma.com/team_invite/redeem/OkArD7JqRrVthr8PHeUDe3
 
+## Enlace a Fase - Fase 1: Entender el problema real
+https://docs.google.com/document/d/1t87uEAhE56rjIzzKIUA-S9aJuQU2Klyj7O3OCEyspJw/edit?usp=sharing
+
 ## Enlace a Fase 1:
 https://docs.google.com/document/d/1Ao9kAcWfTrOITMbqtup_HrE1fMFQnz4YET4DWv2YIYk/edit?usp=sharing
 

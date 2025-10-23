@@ -20,3 +20,6 @@ https://docs.google.com/document/d/1Ds0pKOLYZ2RkZmj-nRECqAA9dosoPf9HvgxYXK-5Q70/
 
 ## Enlace a Fase 6:
 https://docs.google.com/document/d/1Jr5PSxdv73re1bkxS6kuWbHxG1Gtnk7H63zv2AkEAjo/edit?usp=sharing
+
+## Enlace a Fase 8:
+https://docs.google.com/document/d/1I7eg06HC-4rCqocsW0LJqMvbKSGhNsge5gX4klPoJnQ/edit?usp=sharing
